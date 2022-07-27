@@ -1,0 +1,2 @@
+# redesigned-memory
+Affiliate marketer 
